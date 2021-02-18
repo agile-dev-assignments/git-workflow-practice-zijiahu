@@ -12,3 +12,6 @@ I found this article interesting because it discussed technology ethics, which i
 
 **Comment from Jason Yu(jy2575)**  
 I found this article very thought-provoking! It really makes me ponder on this issue. Thank you Zijia for sharing this article.
+
+**Comment from Yuval Rubinstein (yr35)**
+Interesting article. Gives insight on the magazines expirience through the pandemic.
